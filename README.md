@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Faruk Güc built the Get Out app as a Commercial app. This SERVICE is provided by Faruk Güc and is intended for use as is.
+FKG built the Get Out app as a Commercial app. This SERVICE is provided by FKG and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
